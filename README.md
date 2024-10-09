@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Danielle @DJHB24
+👋 Hi, I’m Danielle @DJHB24
 
 
 <!---
